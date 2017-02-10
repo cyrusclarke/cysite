@@ -1,0 +1,32 @@
+
+Space oblivia, or the abyss, With no trace of trivia, left with the hiss
+
+The basic instructions have been revealed to me. I will update this post to include a photo of these. 
+
+They started with warnings. The temporal shifts that occur during transit may cause disturbances experienced in the form of loud crashing sounds and shaking earth. Secondly the self may be difficult to keep track of, thus it was recommended to use a simple marker in order to ensure that one did not lose one&rsquo;s self. 
+
+The key seemingly, is to induce the correct conditions for a shift in consciousness, to make the mental leap required to take the physical journey. Thus the mind should be configured to reach theta states; the elusive and transient experience that one has when daydreaming, meditating or dreaming lucidly. Initially at least there were three steps:
+
+<b>Step one:</b><p>
+The first step was to brew a special concoction of soothing herbs; calming the mind and relaxing the body in preparation for transport. The blend is as follows: ginger, lemon zest, hibiscus root, ground seaweed, valerian flower petals and liquorice root. These ingredients should be added to boiling water and left to cool to room temperature before consuming in no more than 2 gulps.<p>
+<b>Step two:</b><p>
+Creating a marker was next. With no specifics provided, I found some small beads I had lying around and using adhesive applied them to my forehead to create a visible tracker that I could use to be sure I could return to this version of myself.<p> 
+
+
+<b>Step three:</b><p> 
+The next part involved a recording that Gem had provided to me on a CD. On this CD was a 10 minute recording of Binaural beats, whereby 2 similar frequencies are played to each ear, inducing the brain to create a third frequency. She said the recording was the key to reaching Theta state but that further sensory deprivation would be required.
+
+I found a quiet spot and fashioned a blindfold such that my sight would be impaired while listening to the recording. In the absence of a CD player, I uploaded the CD to my mac so that I could listen to the recording. Creating a small push button controller to hit play, I was able to blindfold myself, lay down and push the button.
+
+The experience built from simple low frequencies to more complex forms which engaged my brain quickly taking me beyond physical sensations. I could feel the sounds activating various parts of my brain that I usually do not working actively, that operate on the subconscious level, yet now perhaps due to the drink or the nature of the tones, I was able to experience and appreciate their working.
+
+With the recording played through, I stirred in the same place as I had laid down. Everything appeared to be the same except there now a large wooden frame placed in the centre of the room, perfectly balanced standing of its own fruition. This puzzled me as I was almost certain the wooden frame had not been there previously. I looked back at the instructions and further lines had now appeared. I suppose I should have expected that.<p>
+
+The next phase involved &ldquo;absolving myself of superficial identities&rdquo; by passing through this frame and ultimately entering Cytopia. It was unclear as to how I should do this precisely, so once again I improvised. I took a piece of paper that I found nearby and listed all the basic notions of identity I could think of. <i>Where I&rsquo;m from, What I&rsquo;m called, What colour skin I have, What my background is</i> and so on. After I had exhausted my thoughts I took this sheet of paper and held it in front of myself as I looked directly at a mirror. The mirror reversed the letters rendering them meaningless. I scrunched up the sheet and placed it in a bin before walking through the frame. As I passed through an intense red light began to glow, radiating towards me, prompting a separation of self and reality. 
+
+And with that I entered Cytopia. 
+
+
+  
+
+
